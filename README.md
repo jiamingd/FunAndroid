@@ -1,2 +1,2 @@
 # FunAndroid
-I put most of my fun nasty thoughts here
+I put most of my fun nasty thoughts here.
